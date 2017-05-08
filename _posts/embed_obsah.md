@@ -1,8 +1,8 @@
-<iframe width="560" height="315" src="https://www.youtube.com/watch?v=x117CurlaB0" frameborder="0" allowfullscreen></iframe>
+ï»¿<iframe width="560" height="315" src="https://www.youtube.com/watch?v=x117CurlaB0" frameborder="0" allowfullscreen></iframe>
 
-Vybrala jsem video z YouTube. Chtìla jsem vybrat nìjaké pro mì speciální. Jde o píseò italského zpìváka Lorenzo Giovanotti, 
-øíká se o nìm, e jako první vùbec rapoval. Já rap nìjak nepreferuju, to jen tak pro doplnìní.
+Vybrala jsem video z YouTube. ChtÄ›la jsem vybrat nÄ›jakÃ© pro mÄ› speciÃ¡lnÃ­. Jde o pÃ­seÅˆ italskÃ©ho zpÄ›vÃ¡ka Lorenzo Giovanotti, 
+Å™Ã­kÃ¡ se o nÄ›m, Å¾e jako prvnÃ­ vÅ¯bec rapoval. JÃ¡ rap nÄ›jak nepreferuju, to jen tak pro doplnÄ›nÃ­.
 
-Edit: Aha, tak v hodnocení jsem se doèetla, e to má bıt tematicky spojeno s mım webem, já jsem se ale pøidala k nìkomu jinému, 
-take jsem prostì vloila to, co mnì bylo milé a také jsem ten pøíspìvìk vysvìtlila... Ale èlovìk s fantazií by jistì našel nejednu 
-spojitost mezi krásnou hudbou a zdravım jídlem :-P
+Edit: Aha, tak v hodnocenÃ­ jsem se doÄetla, Å¾e to mÃ¡ bÃ½t tematicky spojeno s mÃ½m webem, jÃ¡ jsem se ale pÅ™idala k nÄ›komu jinÃ©mu, 
+takÅ¾e jsem prostÄ› vloÅ¾ila to, co mnÄ› bylo milÃ© a takÃ© jsem ten pÅ™Ã­spÄ›vÄ›k vysvÄ›tlila... Ale ÄlovÄ›k s fantaziÃ­ by jistÄ› naÅ¡el nejednu 
+spojitost mezi krÃ¡snou hudbou a zdravÃ½m jÃ­dlem :-P
